@@ -1,0 +1,2 @@
+# absenku
+ABSEN SMK AL ULWANI
